@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Siddeequa
+- 👀 I’m interested in the Data Analytics field.
+- 🌱 I’m currently a university student.
+- 📫 How to reach me: siddeequa.jumeen@gmail.com
